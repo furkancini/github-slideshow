@@ -1,0 +1,5 @@
+
+
+
+
+bi adam varmış ölmüş
